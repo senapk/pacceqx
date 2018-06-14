@@ -1,0 +1,4 @@
+# Paccifistas
+
+O projeto Pacifista voltou com tudo. Foi realizado no dia 08/06 o primeiro Paccifista do  semestre que tinha como tema O limite do humor. O projeto Paccifista visa promover o diálogo, troca  de idéia e a tolerância entre os participantes. No qual todos podem participar, sendo de início dois times um que argumenta a favor do assunto e outro contra. Sendo que a posição do argumento o time só saberá na hora por meio de um sorteio. No final é aberto ao público para expressarem suas opiniões sobre aquele tema. Nos semestres passados tivemos os seguintes temas: 
+legalização da maconha, lei das cotas, pixo vs arte, liberação do porte de armas, legalização do aborto e redução da maioridade penal. O primeiro Pacifista que aconteceu no campus da Ufc em Quixadá foi sobre legalização da maconha.

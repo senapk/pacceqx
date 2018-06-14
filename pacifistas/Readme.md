@@ -1,0 +1,9 @@
+- Legalização da maconha
+- Lei das cotas 
+- Pixo vs Arte
+- Liberação do porte de armas
+- Legalização do Aborto
+- Eutanásia.
+- Liberdade de Expressão
+- Maioridade Penal
+- Limites do Humor
